@@ -1,5 +1,5 @@
 # Taran24coder.github.io
-## Activity report of student induction programme 2024
+## Activity report of student induction programme 2024 Day- 6
 
 | Date | Resource Pearson | Description |
 | ----------- | ----------- | ----------- |
