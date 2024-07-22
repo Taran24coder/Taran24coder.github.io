@@ -1,4 +1,11 @@
 # Taran24coder.github.io
+## Activity report of student induction programme 2024 Day- 5
+
+| Date | Resource Pearson | Description |
+| ----------- | ----------- | ----------- |
+| 18/07/2024 | SKG mam | In this math class we all have attempted a lot of questions of differentiation and integration by this I was able to recall all the concepts which I have studied in class 12th this was very beneficial and good class. |
+| 18/07/2024 | MK mam | Mam tought us about the coexistence of self and body and what are the sources of imagination,self regulation and also told us about the understanding harmony in the family like what is education sanskar and how to be happy and maintain harmony among other people's. |
+
 ## Activity report of student induction programme 2024 Day- 6
 
 | Date | Resource Pearson | Description |
