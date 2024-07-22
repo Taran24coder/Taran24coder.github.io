@@ -1,4 +1,12 @@
 # Taran24coder.github.io
+## Activity report of student induction programme 2024 Day- 1
+
+| Date | Resource Pearson | Description |
+| ----------- | ----------- | ----------- |
+| 11/07/2024 | Dr.Arvind Dhingra | This is a very wonderful session as in this we are able to get a lot of information about the number of committes and clubs such as caumic club, itian club, english club etc. Also sir is a very good motivational speaker such as he made the session very wonderful and also gave some information about the STEP which help a fresher to enter world of science and technology. Also he said to note the 3 P's ->     1.Passion 2.Persistece 3.Patience |
+| 11/07/2024 | Dr.Parminder Singh | In this session we saw the glimpses of college in form of sports, annual fest and he also showed us about the fascilities of college such as cantinies, dispensary, stationary shop. Also he told us about various scholorships which are provided with in th institute and no. of fascilities are provide in hostels such as gym, mess committee, common room and wifi fascility. |
+| 11/07/2024 | Dr.H.S Rai | This is also a very useful and knowledgeable session as in this session he asked us that what we have in our mind when we see word examination. He also gave us a lot of information about different platforms where we could work to enhance our technical skills like Duckduckgo.com and about markdown as this is a wonderful session to get some new information about new topics which I can't able to know bwfore. |
+
 ## Activity report of student induction programme 2024 Day- 2
 
 | Date | Resource Pearson | Description |
