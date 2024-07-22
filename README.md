@@ -5,14 +5,7 @@
 | ----------- | ----------- | ----------- |
 | 15/07/2024 | Dr.Randhir Singh | Sir told us about very important information such as about the student ID and making notes on daily basis in GitHub. He instructed us about the GitHub and how to make our account then uploading daily session notes as this application is very usefull for this purpose. |
 | 15/07/2024 | Dr.Pyare Lal | He is a very wonderful personality such as he toughted us that we should always have eager to learn that thing that we didn't know. His way of learning is that one person should always be as much capable to do self study. He shared one point that was when his daughter came to him and ask to taught her a topic but sir didn't taught and said that you should learn it at your own and after when she completed it and that happiness is very wonderful. |
-| 15/07/2024 | Mr.Sony Goyal | 'JOSH'-"Journey on success Highway" this was a very wonderful event as in this he taughted many things like many lessons
-1. Always give your 100% in any work which you are attempting.
-2. Always Love that thing or profession that you are doing
-   He also taught us about mening of LIFE
-   L- Learning 
-   I- Inquire
-   F- Future
-   E- Explore |
+| 15/07/2024 | Mr.Sony Goyal | 'JOSH'-"Journey on success Highway" this was a very wonderful event as in this he taughted many things like many lessons 1) Always give your 100% in any work which you are attempting. 2) Always Love that thing or profession that you are doing. He also taught us about mening of  LIFE-> L- Learning                         I- Inquire                          F- Future                           E- Explore |
 | 15/07/2024 | Mr.Pancham | Sir taughted us about the various expression of a person that how could we identify that a person is giving us a fake or real smile. He also told us about the various forms of handshake and sitting posture that a person is arrogant, introvert, dominant,etc. Actually this was a wonderful session which would help us in our future |
 
 ## Activity report of student induction programme 2024 Day- 4
