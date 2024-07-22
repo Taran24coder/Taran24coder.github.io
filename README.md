@@ -1,10 +1,25 @@
 # Taran24coder.github.io
+## Activity report of student induction programme 2024 Day- 3
+
+| Date | Resource Pearson | Description |
+| ----------- | ----------- | ----------- |
+| 15/07/2024 | Dr.Randhir Singh | Sir told us about very important information such as about the student ID and making notes on daily basis in GitHub. He instructed us about the GitHub and how to make our account then uploading daily session notes as this application is very usefull for this purpose. |
+| 15/07/2024 | Dr.Pyare Lal | |
+| 15/07/2024 | Mr.Sony Goyal | |
+| 15/07/2024 | Mr.Pancham | |
+
+## Activity report of student induction programme 2024 Day- 4
+
+| Date | Resource Pearson | Description |
+| ----------- | ----------- | ----------- |
+| 16/07/2024 | Er.Ranjodh Kaur and Er.Jaskiran Kaur | This was a wonderful experience as in this session they introduced about the vision, mission, and principals of information technology department and she also told us how to upload certificates on College website and give a hardcopy of it to our mentor. They introduced all the faculty members and HOD Dr.Kulwinder Singh Mann and Dr.KS Mann also interacted with us and that was a wonderful experience and at last we visited all the Labs and Department of Information technology in which we saw the server room, Cleark office and training and placement cell. |
+
 ## Activity report of student induction programme 2024 Day- 5
 
 | Date | Resource Pearson | Description |
 | ----------- | ----------- | ----------- |
-| 18/07/2024 | SKG mam | In this math class we all have attempted a lot of questions of differentiation and integration by this I was able to recall all the concepts which I have studied in class 12th this was very beneficial and good class. |
-| 18/07/2024 | MK mam | Mam tought us about the coexistence of self and body and what are the sources of imagination,self regulation and also told us about the understanding harmony in the family like what is education sanskar and how to be happy and maintain harmony among other people's. |
+| 17/07/2024 | SKG mam | In this math class we all have attempted a lot of questions of differentiation and integration by this I was able to recall all the concepts which I have studied in class 12th this was very beneficial and good class. |
+| 17/07/2024 | MK mam | Mam tought us about the coexistence of self and body and what are the sources of imagination,self regulation and also told us about the understanding harmony in the family like what is education sanskar and how to be happy and maintain harmony among other people's. |
 
 ## Activity report of student induction programme 2024 Day- 6
 
