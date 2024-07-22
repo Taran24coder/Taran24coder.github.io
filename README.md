@@ -42,4 +42,6 @@
 
 | Date | Resource Pearson | Description |
 | ----------- | ----------- | ----------- |
-| 15/07/2024 | Dr.Randhir Singh | 
+| 22/07/2024 | Dr.S.B Singh | Sir told us to write all our details from Name, Address upto all weak and strong points and he helped us in this session in order to express all our feelings in just some time. We write about all the College, Branch priority order this was very wonderful session in order to express all our feelings. Sir also gave us alot of life lessons such as always learn from everyone who is able to tell you something new. |
+| 22/07/2024 | Dr.Pushpinder Singh | Sir has a very motivating personality such as his words and advices are very usefull. Such as he said to be diff & dumn for those who are negative and just work on your task with full concentration. He gave an example of bamboo tree that one should be flexible like that in problematic situation take one step back. Also if a person has desires than he will do effort and this will give a positive attitude and According to study of Harvard University just 15% of our degree matters nad 85% of our Human skills such as communication and soft skills matter. Always be like a honey bee. |
+| 22/07/2024 |  | 
