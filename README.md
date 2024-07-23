@@ -82,5 +82,11 @@ Such as in this I was able to learn many things like
 
 | Date | Resource Pearson | Description |
 | ----------- | ----------- | ----------- |
-| 23/07/2024 | Jasmine mam | Mam tought us about the understanding the harmony in the society. Also, what are the basic requirements so that |
-| 23/07/2024 |  |  |
+| 23/07/2024 | Jasmine mam | Mam tought us about the understanding of harmony in the society. Also, what are the basic requirements so that one person is able to get mutual happiness and what are the Goals to get harmony in society such as • Right Understanding • Prosperity • Fearlessness in society • Coexistence and there should be a proper input as well as the output which we are using from nature. |
+| 23/07/2024 | Physics sir | This is a wonderful session as the teaching way of sir is amazing he said that always try to relate the topic which you are studying with s background story of that particuar topic or scientist who discovered it and he told about the discovrey of Graphene which was started in 1948 til it got proved in 2004 and got appreciated in 2010 such as it take a lot of time to complete a research. Also, he said that before starting the topic to study it in brief firstly read and find the meaning of heading we almost get an overview in just the heading. |
+
+## Activity report of student induction programme 2024 Day- 10
+
+| Date | Resource Pearson | Description |
+| ----------- | ----------- | ----------- |
+| 24/07/2024 |  |  |
