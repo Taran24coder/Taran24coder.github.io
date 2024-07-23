@@ -60,3 +60,10 @@
 | 22/07/2024 | Dr.S.B Singh | Sir told us to write all our details from Name, Address upto all weak and strong points and he helped us in this session in order to express all our feelings in just some time. We write about all the College, Branch priority order this was very wonderful session in order to express all our feelings. Sir also gave us alot of life lessons such as always learn from everyone who is able to tell you something new. |
 | 22/07/2024 | Dr.Pushpinder Singh | Sir has a very motivating personality such as his words and advices are very usefull. Such as he said to be diff & dumn for those who are negative and just work on your task with full concentration. He gave an example of bamboo tree that one should be flexible like that in problematic situation take one step back. Also if a person has desires than he will do effort and this will give a positive attitude and According to study of Harvard University just 15% of our degree matters nad 85% of our Human skills such as communication and soft skills matter. Always be like a honey bee. |
 | 22/07/2024 | Mam | She told us very harsh reality of humans which we are not focusing such as nowadays due to increase in useage of plastic and not having a proper reource to recycle or destroy it we are just throwing these items inside the water bodis and on the empty places. She showed us 3 videos in which that are presenting harmfull nature of human beings. Such as nowadays nothing is safe to eat as water is contaminated with waste of factories and milk if affected due to the cows are eating plastic and this shows that humans are so selfish they just complete there motive and don't care about nature. Also, she said that in older times humans do man work but now they go to gyms and pay just to be fit. | 
+
+## Activity report of student induction programme 2024 Day- 9
+
+| Date | Resource Pearson | Description |
+| ----------- | ----------- | ----------- |
+| 23/07/2024 |  |  |
+| 23/07/2024 |  |  |
