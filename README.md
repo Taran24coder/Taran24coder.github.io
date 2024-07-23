@@ -1,6 +1,7 @@
 # Taran24coder.github.io
 ## Excel Certificate
    ![image](https://github.com/user-attachments/assets/3dd856d4-978f-43dd-93e3-f08ca6514a00)
+  
    Hi all, 
 I have successfully completed the "Excel for Beginners" course offered by Great Learning Academy. 
 This course is very awesome and it helps to cover many important Excel formulas with alot of information 
