@@ -1,4 +1,20 @@
 # Taran24coder.github.io
+## Excel Certificate
+   ![image](https://github.com/user-attachments/assets/3dd856d4-978f-43dd-93e3-f08ca6514a00)
+   Hi all, 
+I have successfully completed the "Excel for Beginners" course offered by Great Learning Academy. 
+This course is very awesome and it helps to cover many important Excel formulas with alot of information 
+Such as in this I was able to learn many things like
+1. Filtering and Sorting- of data by which we can easily able to get required information among a huge list
+2. Formulas such as 
+ • Index
+ • Vlookup
+ • Hlookup
+ • Offget function
+ • Concatenate
+ • Basic arithmetic operations like mean, mode, varience, average and many more.
+ This was a wonderful experience to polish all useful points of Excel. Such as this is a very useful application to do our work in a very easy manner. Also, in this if we have almost a record of upto 100 pearson and we have to make a welcome letter for all we can just use mail merge with which we give required conditions and get our results in just some 2-3 minutes.
+
 ## Activity report of student induction programme 2024 Day- 1
 
 | Date | Resource Pearson | Description |
