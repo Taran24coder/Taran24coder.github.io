@@ -18,7 +18,7 @@ Such as in this I was able to learn many things like
 
 ## Activity report of student induction programme 2024 Day- 1
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 11/07/2024 | Dr.Arvind Dhingra | This is a very wonderful session as in this we are able to get a lot of information about the number of committes and clubs such as caumic club, itian club, english club etc. Also sir is a very good motivational speaker such as he made the session very wonderful and also gave some information about the STEP which help a fresher to enter world of science and technology. Also he said to note the 3 P's ->     1.Passion 2.Persistece 3.Patience |
 | 11/07/2024 | Dr.Parminder Singh | In this session we saw the glimpses of college in form of sports, annual fest and he also showed us about the fascilities of college such as cantinies, dispensary, stationary shop. Also he told us about various scholorships which are provided with in th institute and no. of fascilities are provide in hostels such as gym, mess committee, common room and wifi fascility. |
@@ -26,7 +26,7 @@ Such as in this I was able to learn many things like
 
 ## Activity report of student induction programme 2024 Day- 2
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 12/07/2024 | Senior students | There was a peer interaction about college in which they told us about the college website and on that they explained how to download anything from that and also explained about syllabus and exam pattren such as exteral and internal marks and they also taught us about how to calculate sgpa according to the credits and marks scored. They also told us about CRN and URN roll numbers. |
 | 12/07/2024 | SKG mam | She started with basic formulas of maths such as in diffrentiation, integration and differential equation. She tought us about the order, degree, general, particular,singular solutions and what is the solution of diffrential equation. Also, explained about the variable sepration. |
@@ -42,20 +42,20 @@ Such as in this I was able to learn many things like
 
 ## Activity report of student induction programme 2024 Day- 4
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 16/07/2024 | Er.Ranjodh Kaur and Er.Jaskiran Kaur | This was a wonderful experience as in this session they introduced about the vision, mission, and principals of information technology department and she also told us how to upload certificates on College website and give a hardcopy of it to our mentor. They introduced all the faculty members and HOD Dr.Kulwinder Singh Mann and Dr.KS Mann also interacted with us and that was a wonderful experience and at last we visited all the Labs and Department of Information technology in which we saw the server room, Cleark office and training and placement cell. |
 
 ## Activity report of student induction programme 2024 Day- 5
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 17/07/2024 | SKG mam | In this math class we all have attempted a lot of questions of differentiation and integration by this I was able to recall all the concepts which I have studied in class 12th this was very beneficial and good class. |
 | 17/07/2024 | Manjot mam | Mam tought us about the coexistence of self and body and what are the sources of imagination,self regulation and also told us about the understanding harmony in the family like what is education sanskar and how to be happy and maintain harmony among other people's. |
 
 ## Activity report of student induction programme 2024 Day- 6
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 18/07/2024 | Manjot mam | Mam told us about the importance of human values and needs that are required by our body that can be qualitative or quantitative. Also what are nine feelings and natural acceptance. |
 | 18/07/2024 | Senior students | There was a peer to peer intraction about AI technology such as Chatgpt that we have to write a prompt so that we could get proper result and basics of Excel like some formulas such as concatenate, vlookup, pper, lower etc. they tell us about how can we use this to complete our work in easy way. |
@@ -64,7 +64,7 @@ Such as in this I was able to learn many things like
 
 ## Activity report of student induction programme 2024 Day- 7
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 19/07/2024 | Er.Kanwardeep Kalra | Mam told us about the importance of soft skills and how these are important and she also told us about how a pearson can judge another pearson in just 7 seconds. She said that skills doesn't matter till the behaviour of a pearson is behaving properly with the interviewer and a smile is very important in our life. She also said that if a person is confident about what he is going to say infront of others just that matters if you have not good in skils it can be considerable. |
 | 19/07/2024 | Jaswinder Singh | Sir has shown us a lot of wonderful maths and science experiments by which we were able to grasp all the wonderful tricks which he tought us such as trick to write table of 8 and 9 and also tell us about the rain detecting sensor which is also a thingto check conducting nature and explined that electrostatic force is stronger than gravitational force with help of a tape and ballon which is very wonderful experience. |
@@ -72,7 +72,7 @@ Such as in this I was able to learn many things like
 
 # Activity report of student induction programme 2024 Day- 8
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 22/07/2024 | Dr.S.B Singh | Sir told us to write all our details from Name, Address upto all weak and strong points and he helped us in this session in order to express all our feelings in just some time. We write about all the College, Branch priority order this was very wonderful session in order to express all our feelings. Sir also gave us alot of life lessons such as always learn from everyone who is able to tell you something new. |
 | 22/07/2024 | Dr.Pushpinder Singh | Sir has a very motivating personality such as his words and advices are very usefull. Such as he said to be diff & dumn for those who are negative and just work on your task with full concentration. He gave an example of bamboo tree that one should be flexible like that in problematic situation take one step back. Also if a person has desires than he will do effort and this will give a positive attitude and According to study of Harvard University just 15% of our degree matters nad 85% of our Human skills such as communication and soft skills matter. Always be like a honey bee. |
@@ -80,13 +80,15 @@ Such as in this I was able to learn many things like
 
 ## Activity report of student induction programme 2024 Day- 9
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 23/07/2024 | Jasmine mam | Mam tought us about the understanding of harmony in the society. Also, what are the basic requirements so that one person is able to get mutual happiness and what are the Goals to get harmony in society such as • Right Understanding • Prosperity • Fearlessness in society • Coexistence and there should be a proper input as well as the output which we are using from nature. |
 | 23/07/2024 | Physics sir | This is a wonderful session as the teaching way of sir is amazing he said that always try to relate the topic which you are studying with s background story of that particuar topic or scientist who discovered it and he told about the discovrey of Graphene which was started in 1948 til it got proved in 2004 and got appreciated in 2010 such as it take a lot of time to complete a research. Also, he said that before starting the topic to study it in brief firstly read and find the meaning of heading we almost get an overview in just the heading. |
 
 ## Activity report of student induction programme 2024 Day- 10
 
-| Date | Resource Pearson | Description |
+| Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
+| 24/07/2024 | Mr.Gauravdeep Singh |  |
+| 24/07/2024 | Er.Lakhvir Singh |  |
 | 24/07/2024 |  |  |
