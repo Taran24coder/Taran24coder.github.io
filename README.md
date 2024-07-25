@@ -1,4 +1,5 @@
 # Taran24coder.github.io
+## Brief Introduction 
 Myself Taran Preet Singh I live in Malerkotla and I have completed my senior secondary education from Sita Grammar School, Malerkotla and currently I am doing BTech in Information technology in Guru Nanak Dev Engineering College, Ludhiana.
 I got overall 89% marks in my class 12th CBSE board examinations.
 
@@ -18,6 +19,10 @@ Such as in this I was able to learn many things like
  • Concatenate
  • Basic arithmetic operations like mean, mode, varience, average and many more.
  This was a wonderful experience to polish all useful points of Excel. Such as this is a very useful application to do our work in a very easy manner. Also, in this if we have almost a record of upto 100 pearson and we have to make a welcome letter for all we can just use mail merge with which we give required conditions and get our results in just some 2-3 minutes.
+
+## First Day in College 
+Overall I can say that this is a very wonderful day as after alot of studies and exams a student is able to get admission. 
+As on this day first of all the College and all the dignitaries has organised Shabad Kirtan for the starting of new academic year for first year students so that the whole session can run easily without any problems. After that there is an arrangement of snacks and tea and than all the first year students get there introductory files along with academic calander and prospectos. Also many speakers come on the stage and give us number of wishes and congratulations for this new academic year and we learn alot of things from them and they also tell us about the motive of this Student Induction programme which plays an important role and we will learn alot of things during this time. So, atlast I want to say that this day is unforgettable and remains always in my mind.
 
 ## Activity report of student induction programme 2024 Day- 1
 
@@ -97,14 +102,14 @@ Such as in this I was able to learn many things like
 | 24/07/2024 | Er.Lakhvir Singh | This is the one of the most informative session as in this sir tought us about Swayam and NPTEL that how we can take help from this in our studies. Also, he tell that how to sign in this platform and how can we apply for minor and Honours degree and after we are able to get 20 credit points only than we can apply for this course as thes will give alot of benefits and he motivated us that in 4th when we will get internship we try to get it out of India and the company will pay us not we pay for internship. |
 | 24/07/2024 | Cosmic club members | As this a very informative session such in this seniors told us about how yhis club was formed by there seniors for just a GK quiz and after some time this changed to one of the best clubs in college and they introduced about the heads and chief's of this club and also told us about the major grand wvents that were organised by this and that are APEX and ACME and also guide us that how can we register for this club. |
 
-## Activity report of student induction programme 2024 Day- 10
+## Activity report of student induction programme 2024 Day- 11
 
 | Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
 | 25/07/2024 | Karan Bhalaa sir | This was one of the most interactive session as in this session sir tought us about the some basics of chemistry such as in organic part he taught us about basic functional groups and resonance and in the inorganic part he taught different blocks s,p,d,f and configuration and cillit in shells according to afbau principal and in physical part he taught about the difference of tap and RO water and formula of rust and how could we made the chemical formulas from cation and anions. |
 | 25/07/2024 | Maths test | As we have already practiced alot in class as Mam gave us number of questions to practice and that were very useful for this test and this is compatitively little bit easier to attempt due to practice of questions in the class. |
 
-## Activity report of student induction programme 2024 Day- 10
+## Activity report of student induction programme 2024 Day- 12
 
 | Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
