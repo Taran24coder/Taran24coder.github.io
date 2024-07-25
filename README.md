@@ -89,6 +89,6 @@ Such as in this I was able to learn many things like
 
 | Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
-| 24/07/2024 | Mr.Gauravdeep Singh |  |
-| 24/07/2024 | Er.Lakhvir Singh |  |
+| 24/07/2024 | Mr.Gauravdeep Singh | This was a wonderful session as sir shared his childhood story which was very beneficial and motivating. Also, sir told us about the three laws 1) Firstly all should identify there qualities and these will help alot to take your study profession. 2) Such as a person has a lot of power that the universe holds. 3) Never say this in bad time that why only with me is this happening as what is happening in your life is with the God's sake and that is good every time. |
+| 24/07/2024 | Er.Lakhvir Singh | This is the one of the most informative session as in this sir tought us about Swayam and NPTEL that how we can take help from this in our studies. Also, he tell that how to sign in this platform and how can we apply for minor and Honours degree and after we are able to get 20 credit points only than we can apply for this course as thes will give alot of benefits and he motivated us that in 4th when we will get internship we try to get it out of India and the company will pay us not we pay for internship. |
 | 24/07/2024 |  |  |
