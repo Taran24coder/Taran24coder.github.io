@@ -52,6 +52,7 @@ Such as in this I was able to learn many things like
 | ----------- | ----------- | ----------- |
 | 17/07/2024 | SKG mam | In this math class we all have attempted a lot of questions of differentiation and integration by this I was able to recall all the concepts which I have studied in class 12th this was very beneficial and good class. |
 | 17/07/2024 | Manjot mam | Mam tought us about the coexistence of self and body and what are the sources of imagination,self regulation and also told us about the understanding harmony in the family like what is education sanskar and how to be happy and maintain harmony among other people's. |
+| 17/07/2024 | English test | In this session our test was conducted and this was very sudden but I was able to attempt it on basis of studies upto 12th class. |
 
 ## Activity report of student induction programme 2024 Day- 6
 
@@ -92,3 +93,17 @@ Such as in this I was able to learn many things like
 | 24/07/2024 | Mr.Gauravdeep Singh | This was a wonderful session as sir shared his childhood story which was very beneficial and motivating. Also, sir told us about the three laws 1) Firstly all should identify there qualities and these will help alot to take your study profession. 2) Such as a person has a lot of power that the universe holds. 3) Never say this in bad time that why only with me is this happening as what is happening in your life is with the God's sake and that is good every time. |
 | 24/07/2024 | Er.Lakhvir Singh | This is the one of the most informative session as in this sir tought us about Swayam and NPTEL that how we can take help from this in our studies. Also, he tell that how to sign in this platform and how can we apply for minor and Honours degree and after we are able to get 20 credit points only than we can apply for this course as thes will give alot of benefits and he motivated us that in 4th when we will get internship we try to get it out of India and the company will pay us not we pay for internship. |
 | 24/07/2024 | Cosmic club members | As this a very informative session such in this seniors told us about how yhis club was formed by there seniors for just a GK quiz and after some time this changed to one of the best clubs in college and they introduced about the heads and chief's of this club and also told us about the major grand wvents that were organised by this and that are APEX and ACME and also guide us that how can we register for this club. |
+
+## Activity report of student induction programme 2024 Day- 10
+
+| Date | Resource Person | Description |
+| ----------- | ----------- | ----------- |
+| 25/07/2024 | Karan Bhalaa sir | This was one of the most interactive session as in this session sir tought us about the some basics of chemistry such as in organic part he taught us about basic functional groups and resonance and in the inorganic part he taught different blocks s,p,d,f and configuration and cillit in shells according to afbau principal and in physical part he taught about the difference of tap and RO water and formula of rust and how could we made the chemical formulas from cation and anions. |
+| 25/07/2024 | Maths test | As we have already practiced alot in class as Mam gave us number of questions to practice and that were very useful for this test and this is compatitively little bit easier to attempt due to practice of questions in the class. |
+
+## Activity report of student induction programme 2024 Day- 10
+
+| Date | Resource Person | Description |
+| ----------- | ----------- | ----------- |
+| 26/07/2024 | Dr. Kamalpreet K Bhatt |  |
+| 26/07/2024 |  |  |
