@@ -1,4 +1,7 @@
 # Taran24coder.github.io
+Myself Taran Preet Singh I live in Malerkotla and I have completed my senior secondary education from Sita Grammar School, Malerkotla and currently I am doing BTech in Information technology in Guru Nanak Dev Engineering College, Ludhiana.
+I got overall 89% marks in my class 12th CBSE board examinations.
+
 ## Excel Certificate
    ![image](https://github.com/user-attachments/assets/3dd856d4-978f-43dd-93e3-f08ca6514a00)
   
