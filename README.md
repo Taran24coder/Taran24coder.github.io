@@ -113,5 +113,5 @@ As on this day first of all the College and all the dignitaries has organised Sh
 
 | Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
-| 26/07/2024 | Dr. Kamalpreet K Bhatt |  |
-| 26/07/2024 |  |  |
+| 26/07/2024 | Dr. Kamalpreet Kaur Bhatt | This was one of the amazing session and helpful for everybody. In this session mam told us about the importance of meditation that how this could help to cure the life threatening diseases like cancer an she explained the procedure that how one can do meditation in a proper way by applying three locks in our body. How the cosmic energy we get during meditation and which help to cure our body. Also she said that we should meditate for as many minutes as our age. |
+| 26/07/2024 | Valedictory | This is the last day and very amazing session as all the first year students who participated in competition of singing and dancing performed very well and a senior student also gave a mimicry performance that was amazing.|
