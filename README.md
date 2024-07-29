@@ -109,7 +109,7 @@ As on this day first of all the College and all the dignitaries has organised Sh
 | 25/07/2024 | Karan Bhalaa sir | This was one of the most interactive session as in this session sir tought us about the some basics of chemistry such as in organic part he taught us about basic functional groups and resonance and in the inorganic part he taught different blocks s,p,d,f and configuration and cillit in shells according to afbau principal and in physical part he taught about the difference of tap and RO water and formula of rust and how could we made the chemical formulas from cation and anions. |
 | 25/07/2024 | Maths test | As we have already practiced alot in class as Mam gave us number of questions to practice and that were very useful for this test and this is compatitively little bit easier to attempt due to practice of questions in the class. |
 
-## Activity report of student induction programme 2024 Day- 12
+## Activity report of student induction programme 2024 Day- 12 (Last Day)
 
 | Date | Resource Person | Description |
 | ----------- | ----------- | ----------- |
